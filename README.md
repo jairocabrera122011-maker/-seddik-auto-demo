@@ -1,0 +1,1 @@
+# -seddik-auto-demo
